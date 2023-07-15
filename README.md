@@ -5,4 +5,4 @@
 
  ---
  ## Contact Me 📫
- ## [Linkedin](linkedin.com/in/özge-bektaş-5773a6235)
+ ## [LinkedIn](linkedin.com/in/özge-bektaş-5773a6235)
